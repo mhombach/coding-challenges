@@ -1,0 +1,1 @@
+Saw this challenge/task mentioned in some video and wanted to test the method that instantly came to my mind.
